@@ -1,4 +1,7 @@
 # try
+Fix Error while fetching extensions. XHR failed in VS Code
+https://bobbyhadz.com/blog/error-while-fetching-extensions-xhr-failed
+
 インターネット エクスプローラーとプロキシ サーバーの併用
 https://learn.microsoft.com/ja-jp/troubleshoot/developer/browsers/connectivity-navigation/use-proxy-servers-with-ie
 
