@@ -1,4 +1,7 @@
 # music
+7弦ギター初心者おすすめ楽曲3選【アニソン・ボカロ・ゲーソン】
+https://m.youtube.com/watch?v=HxNzEI6YlGY
+
 ギターコードダイアグラム表
 https://knatsubrand81.com/chords/chord-index.html
 
