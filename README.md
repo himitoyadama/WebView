@@ -1,4 +1,7 @@
 # music
+【Windows 10】パソコンへCD(音楽)を取り込む方法（WindowsMediaPlayerとiTunesそれぞれ解説）
+https://m.youtube.com/watch?v=3TB14j5pycM
+
 7弦ギター初心者おすすめ楽曲3選【アニソン・ボカロ・ゲーソン】
 https://m.youtube.com/watch?v=HxNzEI6YlGY
 
