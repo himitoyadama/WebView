@@ -1,4 +1,7 @@
 # music
+7弦ギター用のタブ譜（白譜）
+https://www.aki-f.com/dl/item.php?id=7g_tab
+
 【Windows 10】パソコンへCD(音楽)を取り込む方法（WindowsMediaPlayerとiTunesそれぞれ解説）
 https://m.youtube.com/watch?v=3TB14j5pycM
 
