@@ -1,4 +1,7 @@
 # music
+スウィープ奏法 – （エコノミーピッキング）
+https://guitar-hakase.com/2776/
+
 エレキギター初心者におすすめの練習曲10選
 https://m.youtube.com/watch?v=bXwg7Sawvvg
 
