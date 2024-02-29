@@ -1,4 +1,7 @@
 # music
+エレキギター初心者におすすめの練習曲10選
+https://m.youtube.com/watch?v=bXwg7Sawvvg
+
 7弦ギター用のタブ譜（白譜）
 https://www.aki-f.com/dl/item.php?id=7g_tab
 
