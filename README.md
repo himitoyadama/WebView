@@ -1,4 +1,7 @@
 # music
+オッ！っと思えるスウィープ奏法フレーズ一緒に練習してみませんか？
+https://m.youtube.com/watch?v=yjA_DYw_YYM
+
 スウィープ奏法 – （エコノミーピッキング）
 https://guitar-hakase.com/2776/
 
