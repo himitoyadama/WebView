@@ -1,4 +1,7 @@
 # music
+【TAB譜付き】ロビンソン / スピッツ 【ギター弾いてみた】
+https://m.youtube.com/watch?v=RGXWJAa23Gg
+
 初心者のためのカッティング講座超入門!!
 https://m.youtube.com/watch?v=lBPPcZi9GEc
 
