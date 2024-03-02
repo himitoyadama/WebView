@@ -1,4 +1,7 @@
 # music
+ギターレッスン【タッピングを覚えよう】
+https://m.youtube.com/watch?v=DlXKkcjQ-R0
+
 【TAB譜付き】ロビンソン / スピッツ 【ギター弾いてみた】
 https://m.youtube.com/watch?v=RGXWJAa23Gg
 
