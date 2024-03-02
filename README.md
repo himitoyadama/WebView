@@ -1,4 +1,7 @@
 # music
+初心者のためのカッティング講座超入門!!
+https://m.youtube.com/watch?v=lBPPcZi9GEc
+
 オッ！っと思えるスウィープ奏法フレーズ一緒に練習してみませんか？
 https://m.youtube.com/watch?v=yjA_DYw_YYM
 
