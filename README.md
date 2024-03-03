@@ -1,4 +1,7 @@
 # music
+スピッツのロビンソン、アルペジオをマスターしよう！【TAB譜、楽譜、ギター、レッスン、初心者、簡単】
+https://m.youtube.com/watch?v=RrPT_FbMfGw
+
 ロビンソンのイントロのアルペジオを確実に弾く方法
 https://m.youtube.com/watch?v=pjKJU5BTnfI
 
