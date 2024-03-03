@@ -1,4 +1,7 @@
 # music
+ロビンソンのイントロのアルペジオを確実に弾く方法
+https://m.youtube.com/watch?v=pjKJU5BTnfI
+
 ギターレッスン【タッピングを覚えよう】
 https://m.youtube.com/watch?v=DlXKkcjQ-R0
 
