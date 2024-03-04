@@ -1,4 +1,7 @@
 # music
+楽譜の読み方
+https://www.print-gakufu.com/guide/4003/
+
 スピッツのロビンソン、アルペジオをマスターしよう！【TAB譜、楽譜、ギター、レッスン、初心者、簡単】
 https://m.youtube.com/watch?v=RrPT_FbMfGw
 
