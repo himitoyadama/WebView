@@ -1,4 +1,7 @@
 # music
+ギタリストが五線譜を読むために必要になる基礎の練習法
+https://www.jazzguitarstyle.com/how-to-sight-read-music-staff
+
 楽譜の読み方
 https://www.print-gakufu.com/guide/4003/
 
