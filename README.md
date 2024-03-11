@@ -1,4 +1,7 @@
 # music
+COMA-CHI弾き語りRAP「so hard,so strong」
+https://m.youtube.com/watch?v=yKYKN-ybBQY
+
 ギタリストが五線譜を読むために必要になる基礎の練習法
 https://www.jazzguitarstyle.com/how-to-sight-read-music-staff
 
