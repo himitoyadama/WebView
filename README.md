@@ -1,4 +1,7 @@
 # music
+Acoustic Metal Guitar.
+https://m.youtube.com/watch?v=0oW62h-m4OY
+
 COMA-CHI弾き語りRAP「so hard,so strong」
 https://m.youtube.com/watch?v=yKYKN-ybBQY
 
