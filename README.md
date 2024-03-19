@@ -1,4 +1,7 @@
 # music
+指板図くん
+https://guitarmagazine.jp/guitarchordbook/
+
 Acoustic Metal Guitar.
 https://m.youtube.com/watch?v=0oW62h-m4OY
 
