@@ -1,4 +1,7 @@
 # music
+「私、カッティング上手くなりたいんです！」
+https://m.youtube.com/watch?v=YQHygivBPm0
+
 指板図くん
 https://guitarmagazine.jp/guitarchordbook/
 
