@@ -1,4 +1,7 @@
 # music
+TAB譜付KISS【Detroit Rock City 】弾き方解説【ギター初心者中級】
+https://m.youtube.com/watch?v=kcm4Sy0n95U
+
 「私、カッティング上手くなりたいんです！」
 https://m.youtube.com/watch?v=YQHygivBPm0
 
