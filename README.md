@@ -1,4 +1,7 @@
 # music
+付録データのダウンロード
+https://www.rittor-music.co.jp/e/furoku/index.html
+
 TAB譜付KISS【Detroit Rock City 】弾き方解説【ギター初心者中級】
 https://m.youtube.com/watch?v=kcm4Sy0n95U
 
