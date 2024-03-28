@@ -1,4 +1,7 @@
 # music
+エミネム「Lose Yourself」で極上のパワーコードをマスターしました｜Master the best power chords
+https://m.youtube.com/watch?v=eOLg-4MEIew
+
 付録データのダウンロード
 https://www.rittor-music.co.jp/e/furoku/index.html
 
