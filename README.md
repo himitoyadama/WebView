@@ -1,4 +1,7 @@
 # music
+TAB譜付Born To Be Wild【 Steppenwolf】弾き方解説【ギター初心者向け】
+https://m.youtube.com/watch?v=nQja3Tzk_qw
+
 エミネム「Lose Yourself」で極上のパワーコードをマスターしました｜Master the best power chords
 https://m.youtube.com/watch?v=eOLg-4MEIew
 
