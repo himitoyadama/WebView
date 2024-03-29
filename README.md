@@ -1,4 +1,7 @@
 # music
+【保存版】スラップやり方！ベース初心者が上達する基礎練メニュー7つ
+https://m.youtube.com/watch?v=BAMJFxoITEg
+
 TAB譜付Born To Be Wild【 Steppenwolf】弾き方解説【ギター初心者向け】
 https://m.youtube.com/watch?v=nQja3Tzk_qw
 
