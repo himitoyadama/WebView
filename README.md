@@ -1,4 +1,7 @@
 # music
+【9分で出来る！】たったの9分でスラップベースができるようになる動画【ベース講座】
+https://m.youtube.com/watch?v=kjsNN0JPAJo
+
 【保存版】スラップやり方！ベース初心者が上達する基礎練メニュー7つ
 https://m.youtube.com/watch?v=BAMJFxoITEg
 
