@@ -1,4 +1,7 @@
 # music
+【Windows11】DVD再生フリーソフト！無料で使える「VLC media player」
+https://m.youtube.com/watch?v=7qy2XRSKW0I
+
 【9分で出来る！】たったの9分でスラップベースができるようになる動画【ベース講座】
 https://m.youtube.com/watch?v=kjsNN0JPAJo
 
