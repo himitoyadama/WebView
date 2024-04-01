@@ -1,5 +1,8 @@
 # music
 
+【ボイシングの基本】コード進行／音楽理論 No.46（基本と２つの種類とルールについてバークリー卒が解説）
+https://m.youtube.com/watch?v=lu9YZCJ_dko
+
 https://m.youtube.com/watch?v=3TB14j5pycM
 
 【Windows11】DVD再生フリーソフト！無料で使える「VLC media player」
