@@ -1,4 +1,6 @@
 # music
+HOW TO SLAP BASS (beginner, intermediate and BOSS level)
+https://m.youtube.com/watch?v=MN7TJl_xN9M
 
 【ボイシングの基本】コード進行／音楽理論 No.46（基本と２つの種類とルールについてバークリー卒が解説）
 https://m.youtube.com/watch?v=lu9YZCJ_dko
