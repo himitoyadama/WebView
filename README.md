@@ -1,4 +1,7 @@
 # music
+Easy Guide To Basic Guitar Chord Theory - Steve Stine Guitar Lesson | GuitarZoom.com
+https://m.youtube.com/watch?v=4rwjyCSY5lE
+
 HOW TO SLAP BASS (beginner, intermediate and BOSS level)
 https://m.youtube.com/watch?v=MN7TJl_xN9M
 
